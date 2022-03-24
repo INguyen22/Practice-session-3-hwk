@@ -1,1 +1,1 @@
-1, going to kentucky to see my boyfriend
+1. going to kentucky to see my boyfriend
